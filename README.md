@@ -1,16 +1,65 @@
-### Hi there 👋
+### uhhhhhhhhhhhhhh hi im Joel and i uh
+- I'm aspiring to be a game developer
 
-<!--
-**Gatitosfelinos/Gatitosfelinos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- 🔭 I’m currently working on gETTING STUFF TO WORK
+- 🌱 I’m currently learning technology :o
+- 👯 I’m looking to collaborate on game development...stuff
+- 🤔 I’m looking for help with absolutely ANYTHING about Lua code
+- 💬 Ask me about why i decided to do this path
+- 📫 How to reach me: none
+- 😄 Pronouns: doofus/dumb (He/him)
+- ⚡ Fun fact: I have ASD. Yeah.
+- UHHHH K THANK YOU BYE
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-go away there is nothing here
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+- @Juniormaster2020 in roblox
+
+
+
+
+- there is nothing else leave me alone now
